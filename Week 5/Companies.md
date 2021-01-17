@@ -1,6 +1,6 @@
 Top ten companies I am interested in:
-
-1.Clearwater Analytics ()
+<!-- NOTE where/ how do I find people in different companies??? -->
+1.Clearwater Analytics (Find Contacts)
 2.AmeriBen()
 3.Perficient()
 4.InTimeTec()
