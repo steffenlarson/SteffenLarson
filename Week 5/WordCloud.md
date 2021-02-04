@@ -10,3 +10,9 @@ Words on my word cloud:
 8.end
 9.back
 10.software
+11.team player
+12.pleasant
+13.Customer service
+14.love of cats
+15.shift lead
+16.team leader

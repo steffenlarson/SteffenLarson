@@ -22,3 +22,9 @@ How did you get to know or how do you know them?
 
 
 
+
+Link for my Linked in:  https://www.linkedin.com/in/steffen-larson-a9b15b133/
+
+
+*** Brittany: 
+My only real work experience is in fast food. I was into management in both areas, so I could use those for management and team building examples, but I am not sure that I should really put them on my Linkedin... I would also love to set up a time where I could talk to you one on one about my linked in because it makes me a little nervous. Can I also include my time in Boise Code works as part of my experience?
